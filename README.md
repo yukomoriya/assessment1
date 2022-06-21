@@ -1,26 +1,9 @@
 # assessment1
-Emperor Akbar was in the habit of putting riddles and puzzles to his courtiers. He often asked questions which were strange and witty. It took much wisdom to answer these questions.
+There was an old owl that lived in an oak. Everyday he saw incidents happening around him. Yesterday he saw a boy helping an old man to carry a heavy basket. Today he saw a girl shouting at her mother. The more he saw the less he spoke.
 
 
-
-Once he asked a very strange question. The courtiers were dumb folded by his question.
-
+As he spoke less, he heard more. He heard people talking and telling stories. He heard a woman saying that an elephant jumped over a fence. He also heard a man saying that he had never made a mistake.
 
 
-Akbar glanced at his courtiers. As he looked, one by one the heads began to hang low in search of an answer. It was at this moment that Birbal entered the courtyard. Birbal who knew the nature of the emperor quickly grasped the situation and asked, "May I know the question so that I can try for an answer".
+The old owl had seen and heard about what happened to people. Some became better and some became worse. But the old owl had become wiser each and every day.
 
-
-
-Akbar said, "How many crows are there in this city?"
-
-
-
-Without even a moment's thought, Birbal replied "There are fifty thousand five hundred and eighty nine crows, my lord".
-
-
-
-"How can you be so sure?" asked Akbar.
-
-
-
-Birbal said, "Make you men count, My lord. If you find more crows it means some have come to visit their relatives here. If you find less number of crows it means some have gone to visit their relatives elsewhere".
